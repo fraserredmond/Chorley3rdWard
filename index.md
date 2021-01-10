@@ -1,30 +1,28 @@
 # Quick links
 
-## Sacrament (10:00 am)
-
 [Sacrament broadcast](http://chorleystake.co.uk/)
 
-## 1st & 3rd Sundays (11:30 am)
+### 1st & 3rd Sundays (11:30 am)
 
 - [YSA/Young Marrieds](https://us04web.zoom.us/j/78148688859)
 - [Youth, 11-17 year olds](https://zoom.us/my/jacob.kirby)
 - [Adults](https://us04web.zoom.us/j/4803383936)
 - 7.45pm [Adults](https://us04web.zoom.us/j/7327053512)
 
-## 2nd & 4th Sundays (11:30 am)
+### 2nd & 4th Sundays (11:30 am)
 
 - [Elders Quorum](https://churchofjesuschrist.zoom.us/my/lukeskerr)
 - [Relief Society](https://us02web.zoom.us/j/7297160428)
 - [Young Men](https://us02web.zoom.us/my/chorley3)
 - Young Women
 
-## Other:
+### Other:
 
 - YW Activities - every second Wednesday, 7pm (Next: 13 Jan)
 - YW Activities - every second Wednesday, 7:30pm (Next: 13 Jan)
 - Primary activity days - 1st and 3rd Tuesdays, 6pm (Next: 2 Feb, 16 Feb)
 
-## Contact:
+### Contact:
 
 - Announcements: Justine - justine@her.email
 - Attending sacrament in person: Bob - bob@his.email
@@ -110,5 +108,4 @@ The meeting will be recorded for those unable to attend to view at a later date.
 - Share ideas for overcoming challenges
 - How to prepare yourself spiritually
 
-https://us04web.zoom.us/j/76721960714?pwd=V1RqR0Q5SWlKNzJOeFU1UHh1eGhqZz09 
-Meeting ID: 767 2196 0714
+https://us04web.zoom.us/j/76721960714 
