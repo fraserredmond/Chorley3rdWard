@@ -1,6 +1,27 @@
+## Quick links
+
+#### Sacrament (10:00 am)
+
+[Sacrament broadcast](http://chorleystake.co.uk/)
+
+#### 1st & 3rd Sundays (11:30 am)
+
+- [YSA/Young Marrieds](https://us04web.zoom.us/j/78148688859?pwd=R081bXMrSC9acGZSZFlXbzZLQ0Yvdz09)
+- [Youth, 11-17 year olds](https://zoom.us/my/jacob.kirby)
+- [Adults](https://us04web.zoom.us/j/4803383936?pwd=eng2SWdTUHhLRHVrdW9QMkJyd3A2UT09)
+- 7.45pm [Adults](https://us04web.zoom.us/j/7327053512?pwd=VEtkaDVISHJKK2s3Mnd3WkZlNkU0dz09)
+
+#### 2nd & 4th Sundays (11:30 am)
+
+- [Elders Quorum](https://churchofjesuschrist.zoom.us/my/lukeskerr)
+- [Relief Society](https://us02web.zoom.us/j/7297160428?pwd=MlNsdmswZW9mNys3UU9KMW81MVZ3UT09)
+- [Young Men](https://us02web.zoom.us/my/chorley3)
+- Young Women
+
 ## Returning to Church
 
 Dear Chorley 3rd Ward,
+
 You will all be aware that we are now in a lockdown situation once again. I know this is disappointing to many and will cause significant hardship for some. Health concerns are only the most obvious of these challenges, job security, home management, home schooling, isolation and many other matters come along with this. I am confident this decision has been taken with the best of intentions and pray it will have the impact we all hope for.
 
 Legally, meeting for religious worship is still an exemption to the general ban on leaving your home for non-essential travel. The proviso is that you only have direct contact with people in your bubble. The Stake President has confirmed that for now it is the general intention to still allow meetings to take place and be broadcast. 
