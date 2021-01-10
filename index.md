@@ -11,7 +11,7 @@
 
 ### 2nd & 4th Sundays (11:30 am)
 
-- [Elders Quorum](https://churchofjesuschrist.zoom.us/my/lukeskerr)
+- [Elders Quorum](https://zoom.us/my/lukesteven)
 - [Relief Society](https://us02web.zoom.us/j/7297160428)
 - [Young Men](https://us02web.zoom.us/my/chorley3)
 - Young Women
