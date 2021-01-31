@@ -1,5 +1,3 @@
-# Chorley 3rd Ward
-
 ### [Sacrament broadcast](http://chorleystake.co.uk/) (10:00 am)
 
 ### 1st & 3rd Sundays (11:30 am)
