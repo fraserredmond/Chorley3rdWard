@@ -24,24 +24,16 @@
 
 - Tue, 2 Feb, 18:00: Primary activity (8+)
 - Wed, 3 Feb, 19:00: YW activity
-
-
 - Sun, 7 Feb, 10:00: Fast Sunday, Chorley 1 & 4 broadcast
 - Sun, 7 Feb, 11:30: Sunday School
 - Wed, 10 Feb, 19:30: YM activity
-
-
 - Sun, 14 Feb, 10:00: Ward conference, 1st session broadcast
 - Sun, 14 Feb, 11:10: Ward conference, 2nd session via zoom
 - Tue, 16 Feb, 18:00: Primary activity (8+)
 - Wed, 17 Feb, 19:00: YW activity
-
-
 - Sun, 21 Feb, 10:00: No sacrament broadcast (Chorley 4's ward conference)
 - Sun, 21 Feb, 11:30: Sunday School
 - Wed, 24 Feb, 19:30: YM activity
-
-
 - Sun, 28 Feb, 10:00: Sacrament meeting, Chorley 2 & 3 broadcast
 - Sun, 28 Feb, 11:30: EQ/RS/YM/YW
 
